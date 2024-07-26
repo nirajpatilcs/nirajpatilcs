@@ -1,5 +1,5 @@
 # About Me:
-I break things!
+Tech bro
 
 
 ## 🌐 Socials:
